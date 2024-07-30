@@ -11,3 +11,4 @@ Instructions:
 * Mix everything together
 * Mash it up
 * Enjoy with fervor
+* Clean up after yourself!
